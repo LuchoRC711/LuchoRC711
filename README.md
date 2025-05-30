@@ -14,7 +14,7 @@
 
 <br>
 
-[![@luis_rivera_7(https://img.icons8.com/fluency/48/000000/instagram-new.png "@luis_rivera_7")](https://www.instagram.com/luis_rivera_7/) [![@luis_rivera_7](https://img.icons8.com/fluency/48/000000/facebook.png "@luis_rivera_7")](https://www.facebook.com/luis.rivera.306282[![@luis.rivera.306282]
+[![@luis_rivera_7](https://img.icons8.com/fluency/48/000000/instagram-new.png "@luis_rivera_7")](https://www.instagram.com/luis_rivera_7/) [![@luis_rivera_7](https://img.icons8.com/fluency/48/000000/facebook.png "@luis_rivera_7")](https://www.facebook.com/luis.rivera.306282)[![@luis.rivera.306282]
 
 <br>
 

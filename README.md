@@ -48,6 +48,6 @@
 
 <br>
 
-Credit: [AnushkaWijegoonawardana97](https://github.com/AnushkaWijegoonawardana97)
+Credit: [Luis Angel Rivera Guzman](https://github.com/LuchoRC711)
 
 Last edited on: 30/05/2025
